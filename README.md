@@ -1,1 +1,1 @@
-i may come off as rude, offensive and other related definitions, but i don't mean anything ill ｡
+ɪ ᴍᴀʏ ᴄᴏᴍᴇ ᴏꜰꜰ ᴀꜱ ʀᴜᴅᴇ, ᴏꜰꜰᴇɴꜱɪᴠᴇ ᴀɴᴅ ᴏᴛʜᴇʀ ʀᴇʟᴀᴛᴇᴅ ᴅᴇꜰɪɴɪᴛɪᴏɴꜱ, ʙᴜᴛ ɪ ᴅᴏɴ'ᴛ ᴍᴇᴀɴ ᴀɴʏᴛʜɪɴɢ ɪʟʟ ｡
