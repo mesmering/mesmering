@@ -2,7 +2,7 @@
 “ これからは絶対に後悔しないと決めました。二度と後悔はしません！„
 </p>
 
-<p align="center" width="50" height="50" src="https://i.pinimg.com/originals/75/18/f7/7518f7f196c53056b16c91382092e8b4.jpg">
+<p align="center">
  <img src="https://i.pinimg.com/originals/75/18/f7/7518f7f196c53056b16c91382092e8b4.jpg" />
 </p>
 <p align="center">
