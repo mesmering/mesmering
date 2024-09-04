@@ -1,3 +1,3 @@
-ɪ ᴍᴀʏ ᴄᴏᴍᴇ ᴏꜰꜰ ᴀꜱ ʀᴜᴅᴇ, ᴏꜰꜰᴇɴꜱɪᴠᴇ ᴀɴᴅ ᴏᴛʜᴇʀ ʀᴇʟᴀᴛᴇᴅ ᴅᴇꜰɪɴɪᴛɪᴏɴꜱ, ʙᴜᴛ ɪ ᴅᴏɴ'ᴛ ᴍᴇᴀɴ ᴀɴʏᴛʜɪɴɢ ɪʟʟ ｡ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ᴘʟᴜꜱ, ɪ ᴅᴏɴ'ᴛ ʀᴇᴀʟʟʏ ᴋɴᴏᴡ ʜᴏᴡ ᴛᴏ ᴘʀᴇꜱᴇɴᴛ ᴍʏꜱᴇʟꜰ ɪɴ ꜱᴏᴄɪᴀʟ ꜱɪᴛᴜᴀᴛɪᴏɴꜱ, ꜱᴏ ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ ᴍɪɴᴅ ᴛʜᴀᴛ !
+i may come off as rude and offensive, but i don't mean anything in my words .ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+i am also the standard socialy awkward person, so please keep that in mind !
 ![sayaka miki ^_^](https://i.pinimg.com/originals/da/a3/7c/daa37c70d67fdf6cbbf713c80bb507bc.gif)
