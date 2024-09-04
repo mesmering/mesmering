@@ -1,4 +1,8 @@
 <p align="center">
+“ 誰かの幸せを願うと、他の誰かが同じ不幸に見舞われる。„
+</p>
+
+<p align="center">
   <img src="https://i.pinimg.com/originals/da/a3/7c/daa37c70d67fdf6cbbf713c80bb507bc.gif" />
 </p>
 <p align="center">
