@@ -1,4 +1,4 @@
-![Github Views](https://github-views.deno.dev/api/badge/YOUR-USERNAME?label=Your+own+label)
+![Github Views](https://github-views.deno.dev/api/badge/mesmering)
 
 <p align="center">
 “ これからは絶対に後悔しないと決めました。二度と後悔はしません！„
