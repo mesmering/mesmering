@@ -7,8 +7,8 @@
 </p>
 
 <p align="center">
-i may come off as rude and offensive, so please just know i don't actually mean any harm . i am also socially awkward ! ^_^
+i may come off as rude and offensive, so please just know i don't actually mean any harm . i am also socially awkward !
 &gt;
-<p align="center"
+<p align="center">
 i should mention that i follow anyone whenever i can <3
 </p>
