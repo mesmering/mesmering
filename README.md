@@ -1,6 +1,5 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=mesmering&label=mesmers!&color=96d2e8&style=plastic">
-&gt;✧
+<img src="https://komarev.com/ghpvc/?username=mesmering&label=mesmers!&color=96d2e8&style=plastic"> ✧
 </p>
 
 <p align="center">
