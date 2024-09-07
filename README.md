@@ -1,6 +1,4 @@
-<p align="center">
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mesmering)
-</p>
+![Github Views](https://github-views.deno.dev/api/badge/mesmering?label=✧)
 
 <p align="center">
 “ これからは絶対に後悔しないと決めました。二度と後悔はしません！„
