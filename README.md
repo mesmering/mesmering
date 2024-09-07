@@ -9,5 +9,5 @@
 <p align="center">
 i may come off as rude and offensive, so please just know i don't actually mean any harm. i am also socially awkward ! ^_^
 </br>
-i should mention that i follow anyone whenever i can as well .
+i should mention that i spam follow anyone whenever as well .
 </p>
