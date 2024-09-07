@@ -8,5 +8,5 @@
 
 <p align="center">
 i may come off as rude and offensive, so please just know i don't actually mean any harm . i am also socially awkward ! ^_^;
- i should also actually mention that i pretty much follow anyone when i can <3
+   i should also actually mention that i pretty much follow anyone when i can <3
 </p>
