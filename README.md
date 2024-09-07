@@ -1,3 +1,5 @@
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=mesmering)
+
 <p align="center">
  <img src="https://i.pinimg.com/originals/75/18/f7/7518f7f196c53056b16c91382092e8b4.jpg" width="600" />
 </p>
