@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=mesmering&label=ꔫ&color=a2c6d4&style=plastic">
-<br> 私はまだ生きているふりをしている歩く死体です。
+<br> これからは絶対に後悔しないと決めました。二度と後悔はしません！
 </p>
 
 <p align="center">
