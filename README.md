@@ -4,7 +4,8 @@
 </p>
 
 <p align="center">
- <img src="Untitled10_20240908153144.png" width="600" />
+ <img src="![Untitled10_20240908153144](https://github.com/user-attachments/assets/71d68f3c-2b01-43ce-946f-62daeabf9a9a)
+" width="600" />
  <img src="https://i.pinimg.com/originals/75/18/f7/7518f7f196c53056b16c91382092e8b4.jpg" width="600" />
 </p>
 
