@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=mesmering&label=ꔫ&color=a2c6d4&style=plastic">
-私はまだ生きているふりをしている歩く死体です。
+<br> 私はまだ生きているふりをしている歩く死体です。
 </p>
 
 <p align="center">
