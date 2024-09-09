@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=mesmering&label=mesmers!&color=a2c6d4">
+<img src="https://komarev.com/ghpvc/?username=mesmering&label=mesmers!&color=a2c6d4&style=for-the-badge">
 <br> “ これからは絶対に後悔しないと決めました。二度と後悔はしません！„
 </p>
 
